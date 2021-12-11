@@ -1,4 +1,4 @@
-### Advice needs explicit consent
+### Advice requires explicit consent
 
 People give unsolicited advice when they think they know better and want to help, but they don't know - they assume. And they don't help - they make themselves feel better.
 
