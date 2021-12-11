@@ -7,3 +7,5 @@ People give unsolicited advice when they think they know better and want to help
 - If someone asks for support or empathy: **don't** - advice is neither.
 
 - If you're absolutely sure your advice is great and your relationship is safe enough for them to say no: **genuinely ask if they want it** and give enough time to say no, change the subject, or run away.
+
+- If you already gave an advice, that's ok. You can still come back and ask how it felt and how helpful it was.
